@@ -28,4 +28,4 @@ Tools & Skills:
 
 Connect:
 - Email: **vishaldubey8411@gmail.com**
-- LinkedIn: https://www.linkedin.com/in/vishal-dubey-b8b576253?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- LinkedIn: https://www.linkedin.com/in/vishal-dubey-b8b576253/
